@@ -12,4 +12,4 @@ Meu nome é Emily Rodrigues
 
 
 
-![](https://tenor.com/pt-PT/view/yoongi-smile-suga-smile-yoongi-welive-suga-welive-yoongi-weverse-live-gif-26551809)
+![](https://media1.tenor.com/m/eyMEj43D4uoAAAAC/yoongi-smile-suga-smile.gif)
